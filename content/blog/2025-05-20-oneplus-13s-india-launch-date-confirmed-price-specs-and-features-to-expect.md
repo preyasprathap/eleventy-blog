@@ -15,7 +15,7 @@ The brand has confirmed this will be a compact flagship phone with the latest Sn
 
 **OnePlus 13s India Launch Date And More Details Revealed** 
 
-The [OnePlus 13s India launch](https://www.news18.com/tech/oneplus-13s-india-launch-confirmed-new-flagship-phone-coming-9316669.html) has been officially confirmed for June 5, 2025 which is just a few weeks away from now. The 13s launch event will happen at 12PM IST on the said date. 
+The OnePlus 13s India launch has been officially confirmed for June 5, 2025 which is just a few weeks away from now. The 13s launch event will happen at 12PM IST on the said date. 
 
 **OnePlus 13s India Price And Features Expected** 
 
@@ -25,6 +25,6 @@ It will be intriguing to see if the OnePlus 13s gets any sort of IP rating and p
 
 We also know that the popular alert slider button is going away with the OnePlus 13s as the company moves to a Plus Key which functions like Apple’s Action button on iPhones. 
 
-The leaks suggest the [OnePlus 13s launch price in India](https://www.news18.com/tech/oneplus-13s-launch-price-in-india-leaked-heres-what-it-may-cost-you-9338848.html) could be around Rs 50,000, while the same model could cost $649 in the US and AED 2,100 for people buying in Dubai.
+The leaks suggest the OnePlus 13s launch price in India could be around Rs 50,000, while the same model could cost $649 in the US and AED 2,100 for people buying in Dubai.
 
 Now we wait for the OnePlus 13s details to be officially revealed along with its expected price in the market which will show us how the new device will compete with other brands.
